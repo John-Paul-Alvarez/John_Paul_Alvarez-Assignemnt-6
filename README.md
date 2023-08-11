@@ -1,1 +1,1 @@
-# John_Paul_Alvarez-Assignemnt-6
+# John_Paul_Alvarez-Assignment-6
